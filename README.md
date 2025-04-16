@@ -2,4 +2,4 @@
 - 👀 I’m interested in Modding VRChat
 - 🌱 I’m currently learning Python, C#, Batch
 - 📫 How to reach me @fiverrr0644 on discord!
-- 🔥 Old Roblox Exploiter
+- 🔥 Former Roblox Exploiter
