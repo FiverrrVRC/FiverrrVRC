@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning Python, C#, Batch
 - 📫 How to reach me @fiverrr0644 on discord!
 - 🔥 Former Roblox Exploiter
+- 🌐 Look at some RETARD/REJECTS at https://fiverrrimagehosting.github.io/
